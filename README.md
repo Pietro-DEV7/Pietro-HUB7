@@ -14,4 +14,3 @@ Se quiser trocar ideia ou acompanhar meus projetos, fica à vontade 👊
 
 EMAIL:pietrobitencourtalcantara@gmail.com 
 
-
